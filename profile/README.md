@@ -29,4 +29,4 @@ The trade name **neue-dot-com™**, along with its associated logomarks, typogra
 ---
 *Built openly. Managed transparently. Made in Malaysia.*
 
-^ *P.S. Orchestrated from Borneo.*
+^ *P.S. From Borneo with Love.*
